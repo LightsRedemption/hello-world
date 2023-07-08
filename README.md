@@ -1,2 +1,4 @@
 # hello-world
 learning how to use github buddy 
+
+Hello, Gio. It's Gio. We are learning how to use Github. Seems pretty okay so far. Eventually, we will be using this for research so you better practice it up! You are sitting alone at The Library Coffee House at the moment. I'm sure you are thinking about a ton of things right now but try to stay focused. Don't ever give up, you are better than you think. You stick to the minds, hearts, and souls of many people. You are incredibly unique and you know it! You are that one in a million. You are the only person in LB doing this sort of research and definitely, the only person in LB doing this project. Stay motivated, remember to breathe, and think of yourself when you are down. You are your own best friend after all, ever since you were just a kid. I hope you see this message a few times in the future. In your times of need, its okay to feel down. I'll be here for you though. Always. 
